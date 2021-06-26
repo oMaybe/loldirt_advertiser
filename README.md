@@ -1,1 +1,0 @@
-# loldirt_advertiser
